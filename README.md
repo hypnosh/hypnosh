@@ -1,6 +1,12 @@
-## Hi there 👋
+# Amit Sharma
+### From viral puzzles to product strategy — still creating, still learning.  
+**15 years and counting creating products.**
 
-I am Amit Sharma, living in Mumbai, India.
+I love creating things — products, systems, and experiences that bring clarity where there’s chaos.  
+From building *Klueless*, one of India’s first viral online puzzles, to leading and advising teams across design, UX, and product strategy — I’ve always been drawn to the intersection of creativity and systems thinking.
+
+🔗 [ilovecreatingthings.com](https://ilovecreatingthings.com)  
+💼 [LinkedIn](https://www.linkedin.com/in/yourprofile)  
 
 I love creating things — products, systems, and experiences that bring clarity where there’s chaos.
 
