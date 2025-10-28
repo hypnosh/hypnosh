@@ -6,7 +6,7 @@ I love creating things — products, systems, and experiences that bring clarity
 From building *Klueless*, one of India’s first viral online puzzles, to leading and advising teams across design, UX, and product strategy — I’ve always been drawn to the intersection of creativity and systems thinking.
 
 🔗 [ilovecreatingthings.com](https://ilovecreatingthings.com)  
-💼 [LinkedIn](https://www.linkedin.com/in/yourprofile)  
+💼 [LinkedIn](https://www.linkedin.com/in/sharmakamit)  
 
 I love creating things — products, systems, and experiences that bring clarity where there’s chaos.
 
